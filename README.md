@@ -90,7 +90,7 @@ Remember to keep your expectations realistic. You won't become a millionaire ove
 Ready to dip your toes in? Start researching some regulated forex brokers today, check out their copy-trading features, and take it one small step at a time!
 <h2>Related HashTags</h2>
 #ForexAccountManagement #ForexTrading #InvestmentStrategy #PassiveIncome #ForexSignals #FinancialGrowth #TradingStrategy #WealthManagement #ForexMarket #CurrencyTrading #SmartInvesting #PortfolioManagement #ForexExpert #SecureTrading #ProfitableForex
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage">@Forex_Fund_Manage</a></span></strong></h3>
